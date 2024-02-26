@@ -1,2 +1,3 @@
-# Mermade-Hair
+Mermade-Hair
 Mermade Hair brings a touch
+ oceanic enchantment to your hairstyling routine, capturing the essence of carefree beach waves and mermaid-inspired allure. As a beacon of innovation in the hair care industry, Mermade Hair has curated a range of styling tools that effortlessly deliver those coveted, tousled waves reminiscent of sun-kissed shores. The brand's commitment to quality and ease of use shines through in each product, making it accessible for everyone to achieve salon-worthy waves in the comfort of their own home. With Mermade Hair, you're not just styling your hair; you're indulging in a mermaid-inspired experience that celebrates the whimsical and the beautiful. Dive into a world where every day is a beach day, courtesy of Mermade Hair.
